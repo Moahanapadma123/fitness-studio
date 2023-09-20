@@ -1,1 +1,1 @@
-# fitnezz
+# fitness studio
